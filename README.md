@@ -6,6 +6,6 @@ Halo semua, nama saya Raka Fathir Muhammad biasa dipanggil Raka. Saya lahir di P
 ![DSC02921](https://github.com/LupusWhiteFox/IND-A-/assets/89017064/d0afc875-ebdf-448a-a14e-3447fd0a5523)
 
 Hobi saya :
-- Tidur
+- Belajar
 - Game
 - Komputer
